@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @skoskoe
 - 👀 I’m interested in niggas
+- activities and recepies
